@@ -1,0 +1,2 @@
+# premium-etching-batik-001-etching-batik-scrape-through
+Your etching and batik projects are scattered across notebooks, Pinterest boards, and half-finished sketches—costing you hours of setup time before you can even start scraping through wax. The Etching Batik &amp; Scrape Through Wax Craft Hub is a centralized Notion template that keeps your entire wax-resist workflow organized, documented, and ready to
